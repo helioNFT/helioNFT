@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @helioNFT
 - 👀 I’m interested in NFTs and I’m currently trying to create some
-- 💞️ I’m looking to collaborate on with people with the same interests as me
+- 💞️ I’m looking to collaborate on with people who shares the same interest as me
 - 📫 How to reach me:
 - https://discord.gg/pK42JnZW
 
